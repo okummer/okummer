@@ -1,1 +1,1 @@
-I’m @okummer, also known as [https://twitter.com](thatdepends) on Twitter and [https://www.instagram.com/nosuchview/](nosuchview) on Instagram.
+I’m @okummer, also known as [thatdepends](https://twitter.com) on Twitter and [nosuchview](https://www.instagram.com/nosuchview/) on Instagram.
